@@ -1,2 +1,3 @@
 # hello-word
 meu primeiro repositório
+s,rmçlmsdlmçmlmçjihkmcgjblçjopyoifdtxfhgbnmlkúoytfydgxjb nmnlj~´oyptfydgxjbm nmnlj~uýtproydgbmbknoýptuogj
